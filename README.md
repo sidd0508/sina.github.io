@@ -1,0 +1,2 @@
+# sina.github.io
+SINA Restaurant is well known with a substantial gathering of people including families, kids, seniors, and business experts. Our benevolent condition is perfect for praising unique events, facilitating a business lunch, or assembling for a flavorful dinner with loved ones.  Open day by day for lunch and dinner, our Restaurant offers a choice of naturally arranged things utilizing just the best fixings accessible. Top picks incorporate Thalis with Chicken curries, flavourful cakes, Salads and American Breakfast.
